@@ -1,5 +1,5 @@
 ### assalamualaikum👋
-
+![the king of pirates](lutfy.jpg)
 <!--
 **Ramafitra/Ramafitra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
